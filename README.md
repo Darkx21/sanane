@@ -1,0 +1,2 @@
+# sanane
+Kendine iyi biri 
